@@ -1,7 +1,7 @@
 - 👋 Hi, I’m SaiGauthamThota
 - 👀 I’m interested in Analog Ic design and layout anlog layout 
 - 💞️ I’m looking to get a oppurunity where I can use my best potential in design and layout of IC's
-- My ceritification https://drive.google.com/drive/u/0/home
+- My ceritification https://drive.google.com/file/d/19MgwDUWu4kfvZbYW5b19cnvx2SWPXOuZ/view?usp=drive_link
 - 📫 How to reach me
       saigautham1202@gmail.com 
       https://www.linkedin.com/in/sai-gautham-thota-b28117255/ 
